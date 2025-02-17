@@ -1,0 +1,1 @@
+# i3wmConfiguraci-n2025
